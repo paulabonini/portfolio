@@ -1,0 +1,1 @@
+Cópia de página do site Wikipedia.
